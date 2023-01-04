@@ -1,2 +1,0 @@
-# khanitacademyy
-khanitacademyy
